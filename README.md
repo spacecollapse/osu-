@@ -5,7 +5,7 @@
 
 
 
-Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/freedom.exe
+Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/freedom1.zip
 
 Сервер где можно играть с читами:
 
