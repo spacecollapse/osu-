@@ -5,7 +5,7 @@
 
 
 
-Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/osu.exe
+Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/fre1edom.zip
 
 Сервер где можно играть с читами:
 
