@@ -5,6 +5,6 @@
 
 
 
-Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/freedomm.zip
+Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/osu.exe
 
 
