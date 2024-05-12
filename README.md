@@ -5,6 +5,6 @@
 
 На данный момент чит в детекте, используйте на свой страх и риск
 
-Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/freedom.zip
+Скачать - https://github.com/spacecollapse/osu-/releases/download/cheat/freedom.exe
 
 
